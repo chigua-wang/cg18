@@ -2,9 +2,9 @@
 91吃瓜网 - 91吃瓜最懂男人的吃瓜网-当日资讯-黑料吃瓜- 黑料正能量-蝌蚪窝地址
 
 ----
-[🔞🌏点击进入官网【cg588.com】🌏🔞](https://chigua-wang.github.io/cg51/)
+[🔞🌏点击进入官网【cg588.com】🌏🔞](https://chigua-wang.github.io/cg18/)
 ----
-[🔞🌏点击进入官网【cg589.com】🌏🔞](https://chigua-wang.github.io/cg51/)
+[🔞🌏点击进入官网【cg589.com】🌏🔞](https://chigua-wang.github.io/cg18/)
 ----
 <h3>【瓜棚团】更新时间：2024年12月3日</h3>
 
